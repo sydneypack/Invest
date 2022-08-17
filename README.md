@@ -15,3 +15,6 @@ INVEST AND EARN MORE##
  **NOTE**: One should read the instructions above before going on.. thank you!!
  **Invite people as many as you can please**
  
+ **Joining us is not done by signing up on the above sign up key above**... ...**the key above is for one who wants to make an account with this hosting platform..** but anything related to what you have come to do with invest should be via our **email..**
+ any communications with should be through our e-mail address please, **be free to send your communication to us.
+ thx..!**
